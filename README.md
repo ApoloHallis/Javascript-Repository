@@ -3,4 +3,10 @@ HI THERE. I LIKE TOILET TOWER DEFENSE. AN IM SO LUCKY LIKE I GOT A TITAN CINEMA!
 
 THESE IS HIS COUNTER PARTS
 
+Upgraded Titan CameraMan
+
 ![Upgraded Titan CameraMan](https://tr.rbxcdn.com/1830fb8a6e74aff44f965717c6d50250/700/700/Image/Png)
+
+and Upgraded Titan CameraMan
+
+![Upgraded Titan SpeakerMan](https://tr.rbxcdn.com/0ad4b91aeae8b7138a4869260dee9c10/700/700/Image/Png)
